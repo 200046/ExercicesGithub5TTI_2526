@@ -1,1 +1,0 @@
-# ExercicesGithub5TTI_2526
